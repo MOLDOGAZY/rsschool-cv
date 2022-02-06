@@ -1,7 +1,7 @@
 > # MOLDOGAZY KABYLBEKOV
 > 
 > ## Contact me:
-> - [Telephone](491637912826 'Telephone')
+> - Telephone: +491637912826
 > - [Email](mailto:moldogazy.kabylbekov.kk@gmail.com)
 > - [Instagram](https://instagram.com/kazy_kaby1bek0v 'Instagram' )
 > - [GitHub](https://github.com/MOLDOGAZY/ 'GitHub')
