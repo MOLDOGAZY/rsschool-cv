@@ -1,12 +1,12 @@
 > # MOLDOGAZY KABYLBEKOV
 > 
 > ## Contact me:
-> - tel: +491637912826
-> - email: moldogazy.kabylbekov.kk@gmail.com
-> - Instagram: kazy_kaby1bek0v
-> - GitHub: MOLDOGAZY
-> - LinkedIn: MOLDOGAZY
-> - Telegram: kazy_kaby1bek0v
+> - [Telephone](491637912826 'Telephone')
+> - [Email](mailto:moldogazy.kabylbekov.kk@gmail.com)
+> - [Instagram](https://instagram.com/kazy_kaby1bek0v 'Instagram' )
+> - [GitHub](https://github.com/MOLDOGAZY/ 'GitHub')
+> - [LinkedIn](https://www.linkedin.com/in/moldogazy/ 'LinkedIn')
+> - [Telegram](https://t.me/kazy_kaby1bek0v 'Telegram')
 >
 >
 > ## PROFESSIONAL SUMMARY
